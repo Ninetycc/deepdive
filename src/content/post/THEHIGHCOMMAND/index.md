@@ -14,8 +14,8 @@ TOP SECRET CIA program called “Scouting The Future” predicted 9-11 attack [A
 
 
 
-https://www.bitchute.com/video/WxXJ0bdWIO3F/
-https://www.bitchute.com/video/WxXJ0bdWIO3F/
+https://old.bitchute.com/video/WxXJ0bdWIO3F/
+
 
 https://timothycharlesholmseth.com/top-secret-cia-program-called-scouting-the-future-predicted-9-11-attack-area-51-cheyenne-mountain/
 
